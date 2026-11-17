@@ -163,3 +163,17 @@ Cuida tu cuerpo: es tu herramienta más importante. Estírate entre clientas y a
 📌 Compártelo con tu colega para que también se cuide.
 
 #manicurista #vidademanicurista #nailtech #manicuristascolombia #saludpostural #uñas
+
+---
+
+## TikTok (programado en TikTok Studio, público)
+Ya publicados antes: dentista, Tippi, francesa, esmalte.
+Subidos con copias de menos de 3.6 MB (límite del navegador), programados con el programador nativo de TikTok Studio.
+
+| Fecha | 12:00 m | 7:00 p. m. |
+|---|---|---|
+| Mié 18 nov | 06 Clienta que no llegó | 11 Regla 01 |
+| Jue 19 nov | 07 Hazme las de la foto | 12 Regla 02 |
+| Vie 20 nov | 05 Color de la realeza | 08 Se me levantó |
+| Sáb 21 nov | 13 Regla 03 | 09 Precio de amiga |
+| Dom 22 nov | 14 Regla 04 | 10 El dolor que nadie ve |
